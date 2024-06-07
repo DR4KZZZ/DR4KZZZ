@@ -6,7 +6,7 @@
 <p></p>*Estou estudando na escola, e no meu curso
 
 
-<p></p> ![](https://media1.tenor.com/m/MHtnl9iadvgAAAAd/rikoamv-sukuna.gif) </p>
+![](https://media1.tenor.com/m/MHtnl9iadvgAAAAd/rikoamv-sukuna.gif)
 
  
  
