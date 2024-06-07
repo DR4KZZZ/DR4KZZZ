@@ -9,7 +9,8 @@ Estou estudando no alura e ta acabando a aula
  <body> Hoje vamos aprender a se matar</body>
  <h1> foda se</h1>
 
- !(https://www.icegif.com/wp-content/uploads/2023/11/icegif-967.gif)
+ ![](https://media1.tenor.com/m/MHtnl9iadvgAAAAd/rikoamv-sukuna.gif)
+
  
  
  </html>
