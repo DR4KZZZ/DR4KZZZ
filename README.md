@@ -10,7 +10,7 @@
 ![](https://media1.tenor.com/m/MHtnl9iadvgAAAAd/rikoamv-sukuna.gif)
 
 <h3> Segue meu curriculo
-<p> <atributo target="_blank"> https://www.canva.com/design/DAGIHbQW7jE/_w0e9PL9EeOz6gJUxrp3RQ/view?utm_content=DAGIHbQW7jE&utm_campaign=designshare&utm_medium=link&utm_source=editor </p>
+<p> <atributo target="_blank"> https://drive.google.com/file/d/1I2VtkUZIPeOd26uwvotUdTwW3uWjvyOc/view?usp=sharing </p>
 </h3>
 
 
